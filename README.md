@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HajarShakir
+- 👀 I’m interested in languages, translation, sales, writing, and research!
+- 🌱 I’m currently learning more about the art of writing.
+- 💞️ I’m looking to collaborate on any translation and\or writing projects in any (pair) of the following languages: English, Arabic, Spanish, and Turkish.
+- 📫 How to reach me: through email: hajernabil1996@gmail.com, LinkedIn: https://www.linkedin.com/in/hajar-shakir/
